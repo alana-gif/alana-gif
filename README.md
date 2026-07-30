@@ -1,4 +1,4 @@
-## Hi there 👋
+## Department Head & Lead Coder At RGU Motorsport. 
 
 <!--
 **alana-gif/alana-gif** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
