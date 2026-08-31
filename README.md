@@ -1,4 +1,4 @@
-##Computing & Creative Design Student @ RGU
+## Computing & Creative Design Student @ RGU
 ## Department Head & Lead Coder At RGU Motorsport. 
 
 <!--
